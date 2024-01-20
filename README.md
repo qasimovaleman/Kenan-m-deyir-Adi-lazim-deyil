@@ -1,0 +1,1 @@
+# Kenan-m-deyir-Adi-lazim-deyil
